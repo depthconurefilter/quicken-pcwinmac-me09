@@ -1,4 +1,4 @@
-# 
+# Élite Quicken flux de travail pour Mac OS | Gratuit Quicken flux de travail pour PC Windows. Avec planification des rapports et traitement par lots — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
